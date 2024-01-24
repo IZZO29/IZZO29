@@ -16,7 +16,7 @@ Profileme.dev
 --->
 
 * Mail- [dhoke.priyanshu2002@gmail.com](mailto:dhoke.priyanshu2002@gmail.com)
-* Contact Number:- +91-9424017821
+* Contact Number:- +91-9644668994
 * I am Computer Science Engineer(2024) Graduate from IET DAVV,Indore with a passion for logical and critical thinking. I have a deep love for mathematics and  consider myself a tech enthusiast.
 
  
